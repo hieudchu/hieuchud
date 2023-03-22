@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Chu Dang Hieu
-- 💞️ I’m looking to work at S
+- 💞️ I’m looking to work at Seta International 
 - 📫 How to reach me: at hieuchu.d@gmail.com
 
 <!---
